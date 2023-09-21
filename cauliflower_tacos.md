@@ -18,5 +18,5 @@ Peru. If you can make the pickles with Peruvian aji amarillo, please do.
 2. Chop chilis and veg until they beg for mercy
 3. Stab red onions and light on fire until sweet
 4. Make guac (:
-5. Proclaim yoghurt of the holy goat and harvest wild bacteria hoping they will make yoghurt
-6. Get storebought tortillas, homemade failures are also fine
+5. Proclaim milk of the holy goat and harvest wild bacteria hoping they will make yoghurt
+6. Get storebought tortillas, homemade failures are also finie
